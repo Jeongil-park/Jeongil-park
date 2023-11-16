@@ -1,5 +1,5 @@
 ![me](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/9d510960-5d3c-4d4a-88c3-808f089fe8b7)### Hi there 👋
-![me](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/935c3ea8-b8e4-4473-a044-c2a49e6e18a9)
+![KakaoTalk_20231116_223321458](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/34c7b203-e718-4cc3-904c-ce7547fdec30)
 
 <!--
 **Jeongil-park/Jeongil-park** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -11,7 +11,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...![Uploading me.jpg…]()
-![KakaoTalk_20231116_223321458](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/321da494-4f77-44ff-81fc-bf341451bc21)
 
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
