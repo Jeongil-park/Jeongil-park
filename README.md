@@ -1,4 +1,4 @@
-![me](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/9d510960-5d3c-4d4a-88c3-808f089fe8b7)### Hi there 👋
+![me](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/9d510960-5d3c-4d4a-88c3-808f089fe8b7)
 ![KakaoTalk_20231116_223321458](https://github.com/Jeongil-park/Jeongil-park/assets/67448913/34c7b203-e718-4cc3-904c-ce7547fdec30)
 
 <!--
